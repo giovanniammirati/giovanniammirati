@@ -6,4 +6,7 @@ Così venivo soprannominato nel 2018, quando ero il fondatore di [Valp Network](
 
 [Hemerald](https://www.youtube.com/c/HemeraldHD) - Creazione del plugin "HemeParkour" per il suo network
 
-[Yumi](https://www.instagram.com/manu.rosss/) - Creazione del network "Iced" e di svariati altri progetti
+[Yumi](https://www.instagram.com/manu.rosss/) - Fondazione di [Iced Network](https://www.instagram.com/icednetwork.it/) e di svariati altri progetti
+
+[Denalmond](https://www.instagram.com/_denalmond_) - Fondazione del network "DenalWorld" e di [Sigma RP](https://discord.gg/invite/5PJerwq2fa) su FiveM
+
