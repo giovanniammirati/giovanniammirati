@@ -8,5 +8,5 @@ Così venivo soprannominato nel 2018, quando ero il fondatore di [Valp Network](
 
 [Yumi](https://www.instagram.com/manu.rosss/) - Fondazione di [Iced Network](https://www.instagram.com/icednetwork.it/) e di svariati altri progetti
 
-[Denalmond](https://www.instagram.com/_denalmond_) - Fondazione del network "DenalWorld" e di [Sigma RP](https://www.instagram.com/sigmarpita) su FiveM
+[Denalmond](https://www.instagram.com/_denalmond_) - Fondazione del network DenalWorld e di [Sigma RP](https://www.instagram.com/sigmarpita) su FiveM
 
