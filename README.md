@@ -3,5 +3,7 @@ Così venivo soprannominato nel 2018, quando ero il fondatore di [Valp Network](
 
 ### Alcuni nomi conosciuti con cui ho collaborato
 [Kwebbelkop](https://www.youtube.com/channel/UCfLuMSIDmeWRYpuCQL0OJ6A) - Minecraft Java Developer for videos
+
 [Hemerald](https://www.youtube.com/c/HemeraldHD) - Creazione del plugin "HemeParkour" per il suo network
+
 [Yumi](https://www.youtube.com/channel/UC9Ei3zYLScAi-ix5HG4gRvw/videos) - Creazione del network "Iced" e di svariati altri progetti
