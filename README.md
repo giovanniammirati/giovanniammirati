@@ -1,5 +1,4 @@
-### "Il mago di Spigot"
-Così venivo soprannominato nel 2018, quando avevo fondato [Valp Network](https://www.instagram.com/valpnetwork/), uno dei progetti più importanti nel panorama di Minecraft Italia dell'epoca. Oltre 5000 membri nella community Telegram e 15.000 giocatori registrati su Minecraft, con un picco di traffico di 500 giocatori simultanei.
+Ex fondatore di [Valp Network](https://www.instagram.com/valpnetwork/), uno dei progetti più importanti nel panorama di Minecraft Italia di un paio di anni fa. Oltre 5000 membri nella community Telegram e 15.000 giocatori registrati su Minecraft, con un picco di traffico di 500 giocatori simultanei.
 
 ### Alcuni nomi conosciuti con cui ho collaborato
 [Kwebbelkop](https://www.youtube.com/channel/UCfLuMSIDmeWRYpuCQL0OJ6A) - Java Developer for YouTube Minecraft videos
